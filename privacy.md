@@ -34,4 +34,4 @@ You can, at any time:
 
 ## Contact
 
-`support@fatoctopusapps.com`
+`fatoctopusapps@gmail.com`
