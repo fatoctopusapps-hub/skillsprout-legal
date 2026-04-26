@@ -39,4 +39,4 @@ We may update these terms. Material changes will be announced in-app. Continued 
 
 ## Contact
 
-`support@fatoctopusapps.com`
+`fatoctopusapps@gmail.com`
